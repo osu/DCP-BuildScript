@@ -23,3 +23,5 @@
 ## I still have some questions...
 
 Just join our Discord and ask for Automne: https://discord.gg/6xa5MSz
+
+Aussi louse c'est un bg
